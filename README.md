@@ -12,12 +12,12 @@
     > "Единственный человек, с которым вы должны сравнивать себя  — это вы в прошлом.  
      И единственный человек, лучше которого вы должны быть — это вы сейчас."  
 
-    И отчасти, Нетология помогает своей систменой и доступной  
-    подачей материалов, смотреть в себя и соревноваться с собой  
+    И отчасти, Нетология помогает своей системной и доступной  
+    подачей материалов, смотреть в себя и соревноваться с собой,  
     постигая эту непростую профессию. 
 
 
-    ### <u>Спасибо!</u> 
+### <u>Спасибо!</u> 
 
    ![img](https://d3dehtdmp2rwcw.cloudfront.net/ms_602425/6jRQjWnkGrs7CcBQAJ9ulmP9yBaE3n/IMG_8702%255B4148%255D.png?Expires=1705140000&Signature=mry-a8nwxbrX5pcVecnVldlVHSz44LwK1yLw8G9V3DLjWw~OhoJevv3r85pLD8c8hC0q665MtPnWWljbkeBRX~nrTPauYXoE~tVXkBfNsSpsFxum5hX262MBlyWHCfXba2KIhkGn0of3fC-XtY4PTujbkWjHhQ0K587cAhhyTN7taM~TRdE2gDz1~5FDxo0r5wC714YINYcllDFqGHSSwmaclg4QrsbMsxyCtMXbO1dxCkTe6k-spmPUh6fsF3LCr1~LwNEYElxqldOs8GdrUSJmQywTEblCrm5pzbLSMeiuN~yMdmGmbHaPPPsGc~awBLixzqtX37OFWpdyFzLlrA__&Key-Pair-Id=APKAJBCGYQYURKHBGCOA)  
 
